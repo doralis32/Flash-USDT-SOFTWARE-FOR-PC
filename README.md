@@ -74,10 +74,10 @@ WIth our software, you can manage your diverse porfolio with ease, all within on
 
 For more information, updates, and support, visit our website or contact us:
 
-- **Website**: www.fakecryptosender.com
-- **Email**: admin@fakecryptosender.com
-- **Telegram**: @fake_crypto_sender**
-- **Telegram Channel**: @fakecryptosender
+- **Website**: https://t.me/Softwarehenry
+- **Email**: ds3183452@gmail.com
+- **Telegram**: T.me/softwarehenry**
+- **Telegram Channel**: T.me/Softwarehenry
 
 Let's explore the power of our software together
 
