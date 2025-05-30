@@ -76,8 +76,8 @@ For more information, updates, and support, visit our website or contact us:
 
 - **Website**: https://t.me/Softwarehenry
 - **Email**: ds3183452@gmail.com
-- **Telegram**: T.me/softwarehenry**
-- **Telegram Channel**: T.me/Softwarehenry
+- **Telegram**: [T.me/softwarehenry](https://t.me/Softwarehenry)**
+- **Telegram Channel**: [T.me/Softwarehenry](https://t.me/Softwarehenry)
 
 Let's explore the power of our software together
 
