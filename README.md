@@ -78,6 +78,11 @@ For more information, updates, and support, visit our website or contact us:
 - **Email**: ds3183452@gmail.com
 - **Telegram**: [T.me/softwarehenry](https://t.me/Softwarehenry)**
 - **Telegram Channel**: [T.me/Softwarehenry](https://t.me/Softwarehenry)
+📨 [Live Chat](https://t.me/softwarehenry)
+
+[LinkedIn](https://www.linkedin.com/in/henry-philip-301487297?trk=contact-info)
+
+🛠️[Developer](https://t.me/softwarehenry)
 
 Let's explore the power of our software together
 
